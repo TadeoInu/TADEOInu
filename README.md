@@ -1,6 +1,6 @@
 Tadeo Inu is
 
-Community Focused, Peer 2 Peer , Deflationary,  Automated Reward Farming (ARF) Token
+Blockchain Gaming Community Focused, Peer 2 Peer , Deflationary,  Automated Reward Farming (ARF) Token
 
 Tadeo Inu is Part of INU Family, Tadeo is having BSC support hence we reap major benefits over other Inu family members on ETH in terms of Transaction Speed and Extremely low transaction Cost.
 
